@@ -1,0 +1,6 @@
+Hi, I’m @daveFromCitra
+
+I don't know jack about GitHub, so I'm on here trying to learn.
+...
+...
+That is all. 
